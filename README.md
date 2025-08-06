@@ -20,5 +20,5 @@ Hobbies: Playing Basketball, Going to gym, Reading books
 Location: Quezon City, Philippines, 1119
 
 
-Motto in Life: " Respect the Unexpected"
+Motto in Life: " Respect the unexpected make it connected together with headset and the mindset of the fundametal helmet"
 
