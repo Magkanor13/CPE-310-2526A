@@ -14,6 +14,11 @@ Age: 20
 Course and Year level: Bachelor of Science in Inudstrial Engineering
 
 
-Hobbies: Playing Basketball, Going to gym, Reading books,
+Hobbies: Playing Basketball, Going to gym, Reading books
 
+
+Location: Quezon City, Philippines, 1119
+
+
+Motto in Life: " Respect the Unexpected"
 
